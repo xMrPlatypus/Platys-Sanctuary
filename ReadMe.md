@@ -1,1 +1,1 @@
-These are my small projects and excercise
+These are my small projects and exercise 
